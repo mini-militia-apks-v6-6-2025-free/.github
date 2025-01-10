@@ -1,4 +1,4 @@
-## Mini Militia Mod APK Download v6.6.0: Free Download - Android, Window, iOS, Pc, Exploit
+## Mini Militia Mod APK Download v6.6.0: Android, Window, iOS, Pc, Exploit
 
 Mini Militia Mod APK v6.6.0 All Unlocked & Unlimited Everything 👋 Mini Militia Mod APK v6.6.0 All Unlocked & Unlimited Everything, Mini Militia APK v6.6.0 Old Version Download Latest Version 2025, allows you to compete against players from around the world. Mini Militia is a popular multiplayer action game that has been entertaining mobile gamers for years.
 
